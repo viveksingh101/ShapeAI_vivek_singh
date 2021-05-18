@@ -1,1 +1,0 @@
-# ShapeAI_vivek_singh
